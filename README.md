@@ -1,1 +1,1 @@
-This is the IEITS certificate. 
+This is the IELTS certificate. 
